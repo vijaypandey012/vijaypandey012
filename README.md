@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Vijay Pandey
+- 👀 I’m Software Engineer 
+- 🌱 I’m currently Working in HCL TECH  ...
+- 💞️ I’m married..
+- 📫 You can reach out to me on 90206104
